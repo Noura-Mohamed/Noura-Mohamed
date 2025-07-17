@@ -25,7 +25,7 @@
 ---
 
 ## 📌 Projects
-> 🚧 *I’m currently working on my first projects. Stay tuned — they’ll be here soon!* 🚀
+> 🚧 *I’m currently working on my first projects. Stay tuned — they’ll be here soon* 🚀
 
 ---
 
